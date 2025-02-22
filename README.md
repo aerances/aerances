@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @aerances
-- 👀 I’m interested in chupa
-- 🌱 I’m currently learning bilatnism
-- 💞️ I’m looking to collaborate on iyot
-- 📫 How to reach me tarub
+- 👀 I’m interested in 
+- 🌱 I’m currently learning 
+- 💞️ I’m looking to collaborate on 
+- 📫 How to reach me 
 - 😄 Pronouns: hehe
 - ⚡ Fun fact: jokir
 
